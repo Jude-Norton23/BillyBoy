@@ -1,2 +1,2 @@
 # BillyBoy
-Im gay and like school
+I work for FormSoftware so im pretty cool
